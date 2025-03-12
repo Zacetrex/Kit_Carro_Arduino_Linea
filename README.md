@@ -6,4 +6,4 @@
 
 #### Tutorial Completo en [Zacetrex](http://zacetrex.com)
 
-![]()
+![](https://zacetrex.com/wp-content/uploads/2025/03/Kit-de-Carro-Seguidor-de-Linea.png)
