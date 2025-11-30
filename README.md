@@ -6,5 +6,5 @@
 
 #### Tutorial Completo en [Zacetrex](http://zacetrex.com)
 
-![](https://zacetrex.com/wp-content/uploads/2025/03/Kit-de-Carro-Seguidor-de-Linea.png)
-![](https://zacetrex.com/wp-content/uploads/2025/03/Kit-BMS-2S.png)
+![](https://zacetrex.com/wp-content/uploads/2025/11/Kit-Carro-Linea.png)
+![](https://zacetrex.com/wp-content/uploads/2025/11/Kit-de-Baterias.png)
